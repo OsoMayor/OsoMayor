@@ -1,3 +1,3 @@
 ### Hi there 👋
-Actualmente estoy estudiando para aprender a hacer mi pagina weg
+Actualmente estoy estudiando para aprender a hacer mi pagina web
 
